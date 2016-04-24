@@ -7,4 +7,4 @@
 
 http://amib.ir/weblog/wp-content/uploads/amib/iran-provinces-cities/
 
-و از آقای میرمسعود ایرانی ، بنده پیشاپیش تشکر می کنم
+و از آقای امیرمسعود ایرانی ، بنده پیشاپیش تشکر می کنم
